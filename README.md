@@ -1,2 +1,0 @@
-# CoryRexford.github.io
-Website
